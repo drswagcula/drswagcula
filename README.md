@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @drswagcula
 - 👀 I’m interested in Gaming and Anime
-- 🌱 I’m currently learning Computer programing
+- 🌱 I’m a Software Developer
 - 💞️ I’m looking to collaborate on Video editing and Projects
 - 📫 How to reach me Cajukiku@gmail.com
 - 😄 Pronouns: HE/HIM
